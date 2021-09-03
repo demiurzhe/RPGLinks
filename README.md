@@ -12,6 +12,8 @@
 - [Екатеринбург] [Настольные ролевые игры в Екб (и окрестностях)](https://vk.com/pnprpg)
 - [Екатеринбург] [Ролекториум](http://vk.com/rolectorium_ekb)
 - [Екатеринбург] [Играем в Уральское!](https://vk.com/uralplaytest)
+- [Екатеринбург] [Кубы и Речи (игротеки)](https://vk.com/dice_ekb)
+- [Екатеринбург] [Никогде (клуб любителей игр)](https://vk.com/neverwhere_ekb)
 - [Казань] [ROLLIN НРИ КАЗАНЬ](https://vk.com/rollin_die) + [канал](https://t.me/rollin_die)
 - [Калуга] [Ролевая игротека](https://vk.com/elysium40rpg)
 - [Королёв] [Спящая Мантикора](https://vk.com/sleepingmanticora)
